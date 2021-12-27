@@ -1,8 +1,8 @@
 <h2>Hello, I'm Dániel!</h2>
  <br>
-Videogames and programming are my main source of interest, but I also like story writing and multiple forms of art.
+Videogames and programming are my main source of interest, but I also adore other forms of art, like writing, drawing, composing!
  <br>
-I wish to share my emotions, feelings and thoughts with the world, using these visual art forms.
+I wish to share my emotions, feelings and thoughts with the world, using these visual art forms. I want to be recognized for my work.
  <br>
 I am most knowledgeable with Unity and C#. <br>
 I am currently learning Python. <br>
