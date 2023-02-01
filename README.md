@@ -1,10 +1,10 @@
-<h1>Szasz!</h1>
+<h1>Wazzup!</h1>
  <br>
-I live in the least tolerated country in the EU, I wish to be recognized one day, as a Videogame developer by a mass. Would you kindly consider helping?<br>
-I make games, where everything is not what it seems. You'll meet and play with characters you otherwise ignore—minorities, such as queer, neurodivergent, and people of other colors, or gender. There's no such thing as "forced minorities" only idiots who seek to eliminate diversion and exclude people from the gaming community.<br><br>
-JELIGE: MINDEN MEGOLDÁS ÉRDEKEL!<br>
- <br>
+ I'm making videogames, and develop other things.
+ Currently working on the long due KONOHASCII. (See more, here: https://devmarley.itch.io/konohascii)
+<br>
+<br>
 Reach me out! https://linktr.ee/devley0<br>
 
 <br>
-For business inquiries, forward to this address: daniel.mikus03@gmail.com !
+For business inquiries, forward your message to this address: daniel.mikus03@gmail.com !
