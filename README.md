@@ -6,4 +6,4 @@
 Reach me out! https://linktr.ee/devley0<br>
 
 <br>
-For business inquiries, forward your message to this address: daniel.mikus03@gmail.com !
+For serious business mailto:daniel.mikus03@gmail.com!
