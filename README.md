@@ -6,4 +6,4 @@
 Reach me out! https://linktr.ee/devley0<br>
 
 <br>
-For serious business mailto:daniel.mikus03@gmail.com!
+For serious business daniel.mikus03 with gmail credentials!
